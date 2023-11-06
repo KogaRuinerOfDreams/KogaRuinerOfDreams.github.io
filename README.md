@@ -1,2 +1,0 @@
-# KogaRuinerOfDreams.github.io
-description
